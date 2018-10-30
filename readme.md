@@ -1,1 +1,1 @@
-### There is no work and life balance for a computer science engineer
+### There is no work-life balance for a computer science engineer
